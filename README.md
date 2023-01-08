@@ -1,2 +1,2 @@
 # Thoriq-Sulthan-Nugraha
-Codingan 8 Desember 2022
+Codingan 8 Oktober 2022
